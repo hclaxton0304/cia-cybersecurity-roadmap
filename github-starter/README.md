@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Your Name]
+# 👋 Hi, I'm Hanif Claxton Jr
 
 🎓 18 y/o cybersecurity student, future PhD + CIA cyber applicant.  
 🛡️ Building projects, learning daily, staying clearance-ready.  
